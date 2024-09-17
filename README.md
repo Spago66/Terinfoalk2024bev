@@ -9,7 +9,7 @@
 7. nev
 8. Libor Liza
 9. Nagy Kornél 
-10. nev
+10. Nagy Péter Márton
 11. nev
 12. Pallos Dénes
 13. Pável Armand
